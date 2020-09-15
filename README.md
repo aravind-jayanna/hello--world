@@ -7,6 +7,12 @@ have a good day
 
 thanks!!
 
-Regards
+
+bye
+
 
 Aravind
+Associate software engineer
+Galvanize Bangalore
+karnataka
+India
