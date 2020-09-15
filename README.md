@@ -7,7 +7,9 @@ have a good day
 
 thanks!!
 
-Regards
+
+bye
+
 
 Aravind
 Associate software engineer
